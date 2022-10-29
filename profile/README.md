@@ -6,16 +6,26 @@ Midnights is the tenth studio album by American singer-songwriter Taylor Swift, 
 
 ### Table of contents
 
-Lavender Haze
-Maroon
-Anti‐Hero
-Snow on the Beach
-You’re on Your Own, Kid
-Midnight Rain
-Question…?
-Vigilante Shit
-Bejeweled
-Labyrinth
-Karma
-Sweet Nothing
-Mastermind
+1. Songs
+	- Lavender Haze
+	- Maroon
+	- Anti‐Hero
+	- Snow on the Beach
+	- You’re on Your Own, Kid
+	- Midnight Rain
+	- Question…?
+	- Vigilante Shit
+	- Bejeweled
+	- Labyrinth
+	- Karma
+	- Sweet Nothing
+	- Mastermind
+
+2. Bonus Tracks
+	- The Great War
+	- Bigger Than The Whole Sky
+	- Paris
+	- High Infidelity
+	- Glitch
+	- Would've, Could've, Should've
+	- Dear Reader
